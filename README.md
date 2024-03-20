@@ -1,0 +1,2 @@
+# suniy-intellekt
+mahfuza
